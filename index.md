@@ -8,7 +8,7 @@ Every kiwi couple that works full time hours shall afford a house and family.
 
 ### Immigration
 
-Immigrants are a burden. They use our infrastructure that we built for ourselves at our expense. We will abolish all long-term visas.
+Immigrants are a burden. They use our infrastructure that we built for ourselves at our expense. We will abolish all long-term visa processing.
 
 
 ### Foreign Affairs
